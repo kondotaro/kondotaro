@@ -1,4 +1,4 @@
 Hi  
-My name is Ryotaro Kondo.
+My name is kondotaro.
 
-I lived in Japan
+I lived in Japan.
